@@ -1,0 +1,11 @@
+việc đất thuộc sở hữu toàn dân, giao cho Nhà nước đại diện quản lý là có lý do của nó.
+
+Thứ nhất, xuất phát từ đặc điểm của Nhà nước ta là "tất cả quyền lực Nhà nước thuộc về nhân dân", thì nhân dân phải là chủ sở hữu đối với tư liệu sản xuất đặc biệt quý giá của quốc gia là đất đai. Ðất đai là thành quả của sự nghiệp dựng nước và giữ nước lâu dài của cả dân tộc, là thành quả từ công sức, xương máu của bao thế hệ, không thể để cho một số người nào đó có quyền độc chiếm sở hữu. Ðất đai của quốc gia dân tộc phải thuộc sở hữu chung của toàn dân và được sử dụng phục vụ cho mục đích chung của toàn dân tộc, của nhân dân.
+
+Thứ hai, sở hữu toàn dân về đất đai tạo điều kiện để những người lao động tiếp cận đất đai tự do. Phải tạo cơ chế công bằng ngay từ gốc, tức là người lao động phải có tư liệu sản xuất, trong đó có đất đai, để lao động mưu sinh.
+
+Thứ ba, trong điều kiện nước ta, việc thiết lập chế độ sở hữu tư nhân về đất đai là một yếu tố cản trở đầu tư cho phát triển kinh tế - xã hội. Bởi vì, trong chế độ sở hữu tư nhân đất đai, không ai có quyền ngăn cản người chủ đất sử dụng đất theo ý họ, vì đất là tài sản riêng của họ. Lý do này còn khiến đất đai có xu hướng được sử dụng không hiệu quả, chỉ bảo vệ lợi ích của chủ đất mà không quan tâm tới lợi ích sinh tồn của phần lớn dân cư, khi cần xây dựng những công trình công cộng thì sở hữu tư nhân về đất đai sẽ gây ra những trở lực lớn.
+
+Thứ tư, chế độ sở hữu toàn dân về đất đai tránh cho xã hội Việt Nam rơi vào tình trạng bất ổn do một số người có thể đòi hỏi xem xét lại các quyết định lịch sử về đất đai. Nếu thừa nhận sở hữu tư nhân đất đai hoặc đa sở hữu về đất đai, sẽ diễn ra các cuộc tranh chấp đòi lại quyền sở hữu nhà, đất trong quá khứ mà không cần tính đến các yếu tố lịch sử và hiện trạng, như vậy xã hội dễ lâm vào tình trạng bất ổn.
+
+Thứ năm, nếu thừa nhận sở hữu tư nhân đất đai và cho phép người nước ngoài thỏa thuận mua bán đất với tư nhân thì nguy cơ mất chủ quyền lãnh thổ từ hệ lụy của nền kinh tế thị trường sẽ thành hiện thực. Đã có nhiều bài học nhãn tiền của một số nước trên thế giới về vấn đề này...
